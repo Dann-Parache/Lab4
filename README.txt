@@ -1,1 +1,0 @@
-Partner: Samunnat Lamichhane
